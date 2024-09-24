@@ -8,9 +8,9 @@ Meu nome é Jullia
 
 ### Caso Queria entrar Em contato comigo pra me contratar 😁😁💰
 
-jullia1233@gmail.com
+@jullia.pierini@escola.pr.gov.br
 
-Instagram:Julls_02
+Instagram:juhcszx_
 
 
 ![](https://media.giphy.com/media/LmNwrBhejkK9EFP504/giphy.gif) 
